@@ -1,3 +1,3 @@
 # twitter_thread
 
-![alt text](https://imgur.com/a/AQQEJ4p)
+![alt text](https://i.imgur.com/a6k9CGN.png)
